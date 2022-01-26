@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![Slamdunk](https://2.bp.blogspot.com/_IFbYkHJ94qc/SUsN0uc-nGI/AAAAAAAAAYI/Fq9iADPZEd4/s320/1_Hanamichi1.png)
